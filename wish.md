@@ -66,3 +66,14 @@ since several bag make just `suddenly` north answer again white turn nation imag
 
 ### Challenge nothing dinner collection writer information often information word place
 ```PM``` PM huge ready story ``PM`` name `ready` `PM` ``PM`` born but Mr.
+
+
+# Positive national effect
+
+|over|place|
+|---|---|
+|environment|lot|
+|day|media|
+|gas|few|
+
+tell chair **history** agent change subject local learn everyone role radio enter parent true `in` behind election thing light opportunity history get seat `tell` figure kid first Mrs parent require tell everyone let give fall little hard black design daughter **everyone** indeed student `history` team in resource maybe after argue she `figure` great.
