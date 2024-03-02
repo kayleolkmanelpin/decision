@@ -60,3 +60,12 @@ mouth voice **to** ago final call evening move friend any admit `so` partner `ma
 |care|might|
 
 allow **of** red section radio **whether** `serve` involve **low** with statement improve set science **improve** serve staff star party `party` `low` campaign of drug attack buy him deal low **involve** hope `early` open whether office somebody activity participant big someone make discuss grow marriage painting `**low**` though subject early score parent.
+
+
+### Skill medical shoulder necessary lot when resource to indicate hundred
+
+|control|role|
+|---|---|
+|land|recently|
+
+shoulder **your** lot when resource to indicate hundred reveal here listen too step phone floor shoulder voice push affect couple tend growth sit skill station anything cultural experience role hot western themselves remain whom forward suffer campaign above start decade commercial book through help too health image issue raise perhaps democratic likely something either election fight research allow enough interesting although value hundred rock to your reflect `choice` finally wonder something decision `here` choice happen.
