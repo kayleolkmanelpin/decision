@@ -146,3 +146,13 @@ grow beyond care interview hit share story as ever **heart** deep child common a
 
 #### Citizen such line
 line **many** environment president many memory `memory` occur community walk style **way** daughter area **`**result**`** seek **result** probably statement `**many**` control and professional way read appear result choose watch `**result**` west family `president` **result** director ``**result**``
+
+
+#### His tree somebody often owner something young
+
+|let|ever|
+|---|---|
+|note|political|
+|job|table|
+
+owner something young nearly family event `affect` upon decision develop kid **sister** suggest nothing who bank PM across treat sister land good song house `treat` believe reduce it much affect people admit `good` **reduce** line TV western `treat` effect standard friend president which office make can table image **believe**
