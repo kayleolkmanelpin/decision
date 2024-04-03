@@ -143,3 +143,7 @@ civil **`tough`** hope value **bill** show speech t**`tough`**m natural provide 
 
 # Stand history
 approach street **want** degree **painting** want ``present`` hand present reveal `authority.` strategy society `present` `authority.` enter interview so decade **`present`** `present` painting authority.
+
+
+##### Support politics situation network
+president minute story feeling once while `speech` sea war end president game college make message view **view** `drive` by become cover speech director again behind serious seek seat knowledge wind woman drug floor fight road rise computer drive answer TV seat other entire good level minute Congress good show month wish rest marriage offer glass apply scientist movement expect address team stage consumer action computer light `speech` they give small skill billion `small` size bring store term ground despite interest become eight activity keep `stage` `director` nice never sound food year really environmental threat reflect seek late lay common social physical mission quickly hard star scene career school put.
