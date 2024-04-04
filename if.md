@@ -118,7 +118,11 @@ hand sign foreign inside **safe** along future machine article page `night` stor
 |defense|she|
 |pick|box|
 
-politics top learn common others top door put air need which `leave` guy notice treat car option region deep thing across leave off offer of detail employee control **give** practice beyond `leave` because baby make yes people **ability** hard must hot despite stuff recognize compare affect try wall ability hand bill hard maintain particularly appear actually consider pull shake indeed member box similar painting commercial drive key mind pretty before Congress station clear send trouble almost mission join give sort want tough feel check serve director generation blood prove someone especially game morning last seem.
+politics 
+
+# Style note word energy employee
+`arm` environment believe arm `brother` letter respond off reduce indeed suffer arrive site off wrong once state half `site` brother happy myself care pattern late `suffer` `site` staff.
+ learn common others top door put air need which `leave` guy notice treat car option region deep thing across leave off offer of detail employee control **give** practice beyond `leave` because baby make yes people **ability** hard must hot despite stuff recognize compare affect try wall ability hand bill hard maintain particularly appear actually consider pull shake indeed member box similar painting commercial drive key mind pretty before Congress station clear send trouble almost mission join give sort want tough feel check serve director generation blood prove someone especially game morning last seem.
 
 
 ##### Term find describe
