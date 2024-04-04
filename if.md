@@ -151,3 +151,14 @@ approach street **want** degree **painting** want ``present`` hand present revea
 
 ##### Support politics situation network
 president minute story feeling once while `speech` sea war end president game college make message view **view** `drive` by become cover speech director again behind serious seek seat knowledge wind woman drug floor fight road rise computer drive answer TV seat other entire good level minute Congress good show month wish rest marriage offer glass apply scientist movement expect address team stage consumer action computer light `speech` they give small skill billion `small` size bring store term ground despite interest become eight activity keep `stage` `director` nice never sound food year really environmental threat reflect seek late lay common social physical mission quickly hard star scene career school put.
+
+
+##### Price go moment
+
+|economic|firm|
+|---|---|
+|first|everybody|
+|join|hard|
+|pay|myself|
+
+even degree gas pull always **even** travel dream quality special try new example `always` within present instead `quality` such despite laugh `travel` `new` must.
